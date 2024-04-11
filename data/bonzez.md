@@ -1,0 +1,9 @@
+# Bonzez
+
+Bonzez, the enigmatic human sorcerer, stands at 6 feet 1 inch, an unexpected growth spurt the result of a wild magic surge. He also goes by the name "Bon". His once comfortable clothes now clench awkwardly over his frame, betraying the recent change in his height. With unruly brown hair that occasionally shimmers like metallic burnt copper, Bon possesses an otherworldly charm that sets him apart from the average adventurer.
+
+His striking green eyes reveal a mix of curiosity and caution, reflecting the tumultuous path he's traversed. Bon hails from a quaint village nestled west of the Lake of Steam. His father, a skilled artisan, instilled in him a love for creation, while his older brother toiled as an apprentice craftsman. His mother, a caretaker of both livestock and home, brought warmth and stability to their household.
+
+However, Bon's lineage carries a potent magical legacy from Halruaa, a lineage that came to light during his apprenticeship to the sorcerer Savrahm. This mentor, named after the mystical Savras, He of the Third Eye, delved into the chaotic world of wild magic with a particular focus on divination—a practice reminiscent of the great wizards of Halruaa. But tragedy struck when a wild magic surge claimed Savrahm's life in a fiery explosion. Panic gripped Bon, leading him to make a hasty escape, leaving the authorities suspicious of his involvement.
+
+Now, on the run from the law, Bon conceals his true identity by masquerading as a fighter. However, his lack of combat skills and an unconvincing facade reveal his true nature. Despite his attempts at blending in, Bon's innate magical aura and awkward attempts at feigned combat betray his sorcerous origins. With each step, he navigates a precarious existence, haunted by his past and propelled forward by an uncertain destiny in the vast realm of Dungeons and Dragons.
